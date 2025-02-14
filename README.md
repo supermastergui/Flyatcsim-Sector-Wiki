@@ -32,7 +32,7 @@ This tutorial is only for the basic use of ES and does not cover Tower View, Plu
 
 
 
-详情可加群：https://qm.qq.com/q/VF3lylAhGu了解更多
+详情可加群：https://qm.qq.com/q/VF3lylAhGu
 
 
 
@@ -52,7 +52,7 @@ This tutorial is only for the basic use of ES and does not cover Tower View, Plu
 
 
 
-Details can be added to the group: https://qm.qq.com/q/VF3lylAhGu Learn more
+Details can be added to the group: https://qm.qq.com/q/VF3lylAhGu
 
 
 
